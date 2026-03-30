@@ -16,6 +16,6 @@ Me encuentro la inteligencia artificial y Big Data aplicadas a la optmización d
 - ¿Dónde estoy actualmente? BOOTCAMP BIG DATA - IA 
 
 Usar mi experiencia en el mundo de la sanidad, ensayos clínicos y gestionando datos sensibles,
-para con la optención de nuevos conociemientos, utilizarlos para optimizar procesos y añadir valor a mi trabajo.
+para con la obtención de nuevos conociemientos, utilizarlos para optimizar procesos y añadir valor a mi trabajo.
 
 
